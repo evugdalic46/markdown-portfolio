@@ -1,4 +1,4 @@
-Travis Scott
-Adidas
-BMW
-Palace Skateboards
+- Travis Scott
+- Adidas
+- BMW
+- Palace Skateboards

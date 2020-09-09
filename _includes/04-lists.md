@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Travis Scott
+Adidas
+BMW
+Palace Skateboards
